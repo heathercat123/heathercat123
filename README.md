@@ -1,1 +1,1 @@
-Codes garbage for fun and somehow my code works
+why can i have a second bio?
