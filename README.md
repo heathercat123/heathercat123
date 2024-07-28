@@ -1,2 +1,1 @@
-why can i have a second bio?
-like, really that's strange but eh, its cool i guess
+i use github on light mode and i also use my pc on light mode because Micro$oft isn't making dark mode good anytime soon
