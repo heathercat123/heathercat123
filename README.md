@@ -1,1 +1,1 @@
-i use github on light mode and i also use my pc on light mode because Micro$oft isn't making dark mode good anytime soon
+reading a decompiled game's source code before playing the game and seeing the stuff as it isn't intended can be hilarious, even if it's ddlc how the heck is that possible im a head out
