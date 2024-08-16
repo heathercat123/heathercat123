@@ -1,1 +1,1 @@
-reading a decompiled game's source code before playing the game and seeing the stuff as it isn't intended can be hilarious, even if it's ddlc how the heck is that possible my humor is broken i think uhhhh im a head outttttttttt
+"But in this world of infinite webapps, what will it take just to find an app that doesn't require internet?"
